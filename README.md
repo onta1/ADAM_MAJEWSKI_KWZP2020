@@ -1,3 +1,3 @@
-# Blazej_Witek_KWZP2000
+# ADAM_MAJEWSKI_KWZP2000
 
-# Damian_Zielinski_2020
+# SZYMON_LEWCZUK_2020
